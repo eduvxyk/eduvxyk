@@ -1,4 +1,4 @@
-<h2 align="left">HELLO!, BOM, EU ME CHAMO EDUARDO E SOU UM DEV INICIANTE. 😊</h2>
+<h2 align="left">HELLO, HELLO! BOM, EU ME CHAMO EDUARDO E SOU UM DEV INICIANTE. 😊</h2>
 
 ###
 
