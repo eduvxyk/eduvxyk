@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://www.tumblr.com/a-little-ray-of-fantasy/743378252839665664/>
+<img align="right" height="150" src="https://www.tumblr.com/a-little-ray-of-fantasy/743378252839665664.gif"  />
 
 ###
 
