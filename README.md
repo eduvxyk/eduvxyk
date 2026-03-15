@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />
+<img align="right" height="150" src="https://www.pinterest.com/pin/pokemon-cynthia-sticker-pokemon-cynthia-discover-share-gifs--174655291794853249/"  />
 
 ###
 
